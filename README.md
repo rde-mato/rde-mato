@@ -1,1 +1,1 @@
-Motorcycles hearts... drones fly, and peoples with, soon ... ;D
+Motorcycles hurts... drones fly, and peoples with, soon ... ;D
